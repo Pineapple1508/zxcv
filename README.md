@@ -1,3 +1,3 @@
 create by "le dev."
 
-Lelik & Pinapple
+Lelik & Pineapple
